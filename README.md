@@ -3,4 +3,4 @@
 - 🌱 I’m currently just a newbie who knows a lil bit of java
 - 📫 How to reach me:- dashardik007@gmail.com
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: ✨ just a newbie ✨ 
+- ⚡ Fun fact: ✨ just a newbie  
